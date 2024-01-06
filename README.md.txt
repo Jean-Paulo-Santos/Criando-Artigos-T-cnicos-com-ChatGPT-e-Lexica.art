@@ -1,0 +1,1 @@
+https://github.com/Jean-Paulo-Santos/Criando-Artigos-T-cnicos-com-ChatGPT-e-Lexica.art.git
